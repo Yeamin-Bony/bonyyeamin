@@ -6,8 +6,8 @@ An undergraduate student from Bangladesh, currently pursuing his Bachelor of Soc
 
 # Find Me
 
-LinkedIn: www.linkedin.com/in/bony-yeamin
+• LinkedIn: www.linkedin.com/in/bony-yeamin
 
-Scholar Profile: https://scholar.google.com/citations?user=xxdyyrEAAAAJ&hl=en
+• Scholar Profile: https://scholar.google.com/citations?user=xxdyyrEAAAAJ&hl=en
 
-ORCID ID: https://orcid.org/0009-0009-1791-2691
+• ORCID ID: https://orcid.org/0009-0009-1791-2691
